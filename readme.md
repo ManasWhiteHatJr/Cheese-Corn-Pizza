@@ -1,0 +1,1 @@
+This is the Recipe of my Cheese Corn Pizza. We need flour to make the base and pizza sauce. Then we need is 2 layers of cheese above the base after doing that we will add some toping like corn, onion, capsicum, paneer, tomato, olives and more cheese. Now after doing all of this we will bake it in Oven for 23 minutes and now our Pizza is ready to be eated.
